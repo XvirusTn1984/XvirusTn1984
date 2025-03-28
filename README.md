@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @XvirusTn1984
-- 👀 I’m interested in Coding and fucking blond chicks
-- 🌱 I’m currently learning how to make money
-- 💞️ I’m looking to collaborate on fucking your girl
+- 👀 I’m interested in Coding and fucking the security systems all kinds including hacking hardware and Drones 
+- 🌱 I'll continue always learning how to be a better a person
+- 💞️ I’m looking to collaborate on fucking systems for educational purposes
 - 📫 How to reach me ... On the other side of web baby ;*
 
 <!---
